@@ -1,2 +1,2 @@
 # E-reID
-The complete code and dataset will be published as soon as possible
+YOU can contact with johnx20011004@gmail.com for further communication!
